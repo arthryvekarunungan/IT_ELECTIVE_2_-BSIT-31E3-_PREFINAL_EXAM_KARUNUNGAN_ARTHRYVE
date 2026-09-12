@@ -1,1 +1,1 @@
-# IT_ELECTIVE_2_-BSIT-31E3-_PREFINAL_EXAM_KARUNUNGAN_ARTHRYVE
+# Name: [Arthryve Karunungan] | Class & Section: [BSIT-31E3]
